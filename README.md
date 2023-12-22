@@ -3,7 +3,7 @@ Hi 👋🏽
 
 I'm GreG I come from France and right now I will change my professional life...🚧 I'm currently Student @ Wilde Code School - Remote learning 5 months.
 
-Hope to enjoy with you and share alot 🚀
+Hope to enjoy with you and share a lot 🚀
 
 see u 🖖🏼
 
